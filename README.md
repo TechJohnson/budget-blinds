@@ -1,1 +1,1 @@
-# budget-blinds
+# elite-partner-2025
